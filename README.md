@@ -9,3 +9,4 @@ RAFAELA MONTEIRO DA SILVA
 
 
 ​​![](https://tenor.com/pt-BR/view/katherine-peirce-gif-2394154840957036839)
+![](https://media1.tenor.com/m/8Kwbpt6Nr6wAAAAC/katherine-peirce.gif)
